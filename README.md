@@ -27,3 +27,8 @@ The Model Canva shows:
 *Key Partners
 
 *Cost Structure
+
+
+
+![image](https://user-images.githubusercontent.com/122614788/235556675-cfd5acca-b18d-43a4-a28b-e9e701b21a99.png)
+
